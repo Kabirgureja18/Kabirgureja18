@@ -21,7 +21,6 @@ More projects and their current statuses are in my [project list](https://github
 - MU20 Winner, 2025 and 2026
 - IRIS National Fair Grand Prize Winner, 2026 (T.E.R.R.A., team)
 - Viksit Bharat Winner, 2026 (T.E.R.R.A.)
-- Indian Postcard Stamp Award
 
 ## Selected certificates
 
